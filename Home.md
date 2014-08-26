@@ -1,5 +1,5 @@
 # The Official Unofficial Tannenbusch Survival Guide
-##For New BuKas and their Families/Partners
+###For New BuKas and their Families/Partners
 
 Created and Assembled by your friendly 2013-2014 Ameri-BuKas. Updated each year by **YOU** current fellow.
 
