@@ -1,9 +1,9 @@
 # The Official Unofficial Tannenbusch Survival Guide
-##For New BuKas and their Families/Partners
+###For New BuKas and their Families/Partners
 
 Created and Assembled by your friendly 2013-2014 Ameri-BuKas. Updated each year by **YOU** current fellow.
-
 Wiki produced by [Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619)(BuKa 2014-2015). If you like it say hi to him :-)
+
 
 **Dear New BuKas**,
 
@@ -16,6 +16,7 @@ Wiki produced by [Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141
 **Mit freundlichen Grüßen,**
 
 **Your German Chancellor Fellows and Family**
+
 
 [[_TOC_]]
 
