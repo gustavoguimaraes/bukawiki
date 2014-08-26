@@ -3,7 +3,7 @@
 
 Created and Assembled by your friendly 2013-2014 Ameri-BuKas. Updated each year by **YOU** current fellow.
 
-Wiki produced by[ Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619)(BuKa 2014-2015). If you like it say hi to him :-)
+Wiki produced by [Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619)(BuKa 2014-2015). If you like it say hi to him :-)
 
 **Dear New BuKas**,
 
@@ -58,25 +58,24 @@ Universität lawn, anywhere along the Rhein, including Rheinaue park
 
 ##Bars/Clubs
 * Blowup 
-1. 60-70 R&B/Soul/Motown music
-2. Low key bar, mostly Locals, no cover.
+  60-70 R&B/Soul/Motown music
+  Low key bar, mostly Locals, no cover.
 
 * N8Lounge 
-1. Dance Club - 80’s-current music.  
-2. Young crowd, mostly students.  Generally a cover at the door.
+  Dance Club - 80’s-current music.  
+  Young crowd, mostly students.  Generally a cover at the door.
 
 * Hausbar
-1. Dance club with a dress code - no jeans, sports shoes, or t-shirts.  Current music, but a high cover.
+  Dance club with a dress code - no jeans, sports shoes, or t-shirts.  Current music, but a high cover.
 
 * Das NYX 
-1. Low key dance club with 80s to current music. 
+  Low key dance club with 80s to current music. 
  
-
 * Tanke Rike 
-1. Electronic Dance club with cover
-2. No dress code. 
+  Electronic Dance club with cover
+  No dress code. 
 
-See also[ Sports/Exercise](Sports & Exercise)
+See also[ Sports/Exercise](#Sports-&-Exercise)
 
 IFS Language School
 IFS may organize the occasional day trip or activity for BuKas. 
