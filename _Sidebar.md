@@ -1,3 +1,3 @@
-[[Home|Surving Tannesbuch]]
+[[Surving Tannesbuch|Home]]
 
 [[test]]
