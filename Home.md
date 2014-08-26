@@ -1,9 +1,9 @@
 # The Official Unofficial Tannenbusch Survival Guide
 ##For New BuKas and their Families/Partners
 
-Created and Assembled by your friendly 2013-2014 Ameri-BuKas.
+Created and Assembled by your friendly 2013-2014 Ameri-BuKas. Updated each year by **YOU** current fellow.
 
-Wiki produced by[ Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619). If you like it say hi to him :-)
+Wiki produced by[ Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619)(BuKa 2014-2015). If you like it say hi to him :-)
 
 **Dear New BuKas**,
 
@@ -19,56 +19,64 @@ Wiki produced by[ Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141
 
 [[_TOC_]]
 
-Close to The Acora Hotel
-Bacca Restaurant - Oppelner Straße, approximately 1 mile from Acora
-Düne walking trails (with blackberries)
-Winery: Jakob Antwerpen Weinkellerei - Inexpensive and delicious wine
-Dalah, “non-erotic” Thai massage spot in Buschdorf - Friedlandstraße 14B, 022882385963
-Blackberry bushes near soccer fields
-Table Tennis near T-busch - I never did find the place, but some of the Chinese Bukas played
-Tennis - FYI- No “public” courts.  There is a Tennis club near Tannenbusch Sud U-bahn, but membership is required.  I never followed up on the cost.
-Potlucks, frisbee, etc on the Acora lawn in front of Oppelner Straße
-Hertz car rental on Bonnheimer Straße. Allows you to drop off on Sundays, but be sure to take photos of the car before you drop it off to ensure liability
-Kajüte Restaurant - Great pizza, great view of the Rhine, reservations recommended
-A compilation of tasty, Acora kitchen friendly recipes compiled by your fellow Bukas http://theacoracookbook.blogspot.com
+#Close to The Acora Hotel
+* Bacca Restaurant - Oppelner Straße, approximately 1 mile from Acora
+* Düne walking trails (with blackberries)
+* Winery: Jakob Antwerpen Weinkellerei - Inexpensive and delicious wine
+* Dalah, “non-erotic” Thai massage spot in Buschdorf - Friedlandstraße 14B, 022882385963
+* Blackberry bushes near soccer fields
+* Table Tennis near T-busch - I never did find the place, but some of the Chinese Bukas played
+* Tennis - FYI- No “public” courts.  There is a Tennis club near Tannenbusch Sud U-bahn, but membership is required.  I never followed up on the cost.
+* Potlucks, frisbee, etc on the Acora lawn in front of Oppelner Straße
+* Hertz car rental on Bonnheimer Straße. Allows you to drop off on Sundays, but be sure to take photos of the car before you drop it off to ensure liability
+* Kajüte Restaurant - Great pizza, great view of the Rhine, reservations recommended
+* A compilation of tasty, Acora kitchen friendly recipes compiled by your fellow Bukas http://theacoracookbook.blogspot.com
 
-Things in the city of Bonn
-Parks
+#Things in the city of Bonn
+
+##Parks
 Rheinaue park has grill spots, beer gardens, and a Flohmarkt once a month in the summer
-Relaxing outside
+##Relaxing outside
 Universität lawn, anywhere along the Rhein, including Rheinaue park
-Restaurants/Biergartens
-Oliveto (upscale river-side restaurant)
-Bönnsch Brauhaus
-Alter Zoll biergarten!
-Cassius Garten (healthy, vegetarian)
-Mandu (Korean near the university)
-Iss Dich Glücklich (Iranian with fresh juices)
-Eis Labor
-Halbedels (for fancy, delicious food)
-Engel und Teufel food truck in Marktplatz
-Fresh food market in Marktplatz every day
-Dehly & Desander (near the university)
-Restaurants in Altstadt
-Tibetan Imbiss in Poppelsdorf
-Indian Imbiss next to Tibetan Imbiss in Poppelsdorf
-Hotel Dreesen (along the Rhein, infamous and pretty)
-Bars/Clubs
-Blowup 
-60-70 R&B/Soul/Motown music
-Low key bar, mostly Locals, no cover.
-N8Lounge 
-Dance Club - 80’s-current music.  
-Young crowd, mostly students.  Generally a cover at the door.
-Hausbar
-Dance club with a dress code - no jeans, sports shoes, or t-shirts.  Current music, but a high cover.
-Das NYX 
-Low key dance club with 80s to current music.  
-Tanke Rike 
-Electronic Dance club with cover
-No dress code. 
 
-See also Sports/Exercise section
+##Restaurants/Biergartens
+* Oliveto (upscale river-side restaurant)
+* Bönnsch Brauhaus
+* Alter Zoll biergarten!
+* Cassius Garten (healthy, vegetarian)
+* Mandu (Korean near the university)
+* Iss Dich Glücklich (Iranian with fresh juices)
+* Eis Labor
+* Halbedels (for fancy, delicious food)
+* Engel und Teufel food truck in Marktplatz
+* Fresh food market in Marktplatz every day
+* Dehly & Desander (near the university)
+* Restaurants in Altstadt
+* Tibetan Imbiss in Poppelsdorf
+* Indian Imbiss next to Tibetan Imbiss in Poppelsdorf
+* Hotel Dreesen (along the Rhein, infamous and pretty)
+
+##Bars/Clubs
+* Blowup 
+1. 60-70 R&B/Soul/Motown music
+2. Low key bar, mostly Locals, no cover.
+
+* N8Lounge 
+1. Dance Club - 80’s-current music.  
+2. Young crowd, mostly students.  Generally a cover at the door.
+
+* Hausbar
+1. Dance club with a dress code - no jeans, sports shoes, or t-shirts.  Current music, but a high cover.
+
+* Das NYX 
+1. Low key dance club with 80s to current music. 
+ 
+
+* Tanke Rike 
+1. Electronic Dance club with cover
+2. No dress code. 
+
+See also[ Sports/Exercise](Sports & Exercise)
 
 IFS Language School
 IFS may organize the occasional day trip or activity for BuKas. 
