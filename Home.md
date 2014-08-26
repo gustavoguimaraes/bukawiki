@@ -161,9 +161,9 @@ Haribo badminton courts (paid)
 
 #Other Practical Things
 ##Haircuts
-  Salvatore near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
-  There’s a pretty cheap decent place in the mall with the Hit Markt
-***
+  1. Salvatore near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
+2.   There’s a pretty cheap decent place in the mall with the Hit Markt
+
 
 ##Printing documents
 *  The Hotel Acora will print train tickets & small things at the reception; you can also try the internet cafe right near the stairs at the T-Busch train stop.
