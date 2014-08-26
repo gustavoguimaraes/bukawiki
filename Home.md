@@ -97,7 +97,8 @@ _Note that the IFS school was “cleansed” with fire by a student conducting a
 ##Deutsche Post Tower cafeteria
 You’ll need to get a chip card at the automat first (costs about 5 Euros).  After purchasing the card (5 Euros is Pfand), you’ll need to put money on the card.  You go through the lines and pick out which food you want, and at the cash register, they take the money off of the card.  
 
-##Deutsche Welle - better than the Post Tower, but more expensive (they charge a euro or two extra for non-DW employees)
+##Deutsche Welle 
+- better than the Post Tower, but more expensive (they charge a euro or two extra for non-DW employees)
 Consider **packing your lunch** for variety
 
 ##Ice Cream. 
