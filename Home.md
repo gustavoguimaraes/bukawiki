@@ -57,54 +57,57 @@ Universität lawn, anywhere along the Rhein, including Rheinaue park
 * Hotel Dreesen (along the Rhein, infamous and pretty)
 
 ##Bars/Clubs
-* Blowup 
+* Blowup\ 
   60-70 R&B/Soul/Motown music
   Low key bar, mostly Locals, no cover.
 
-* N8Lounge 
+* N8Lounge\ 
   Dance Club - 80’s-current music.  
   Young crowd, mostly students.  Generally a cover at the door.
 
-* Hausbar
+* Hausbar\
   Dance club with a dress code - no jeans, sports shoes, or t-shirts.  Current music, but a high cover.
 
-* Das NYX 
+* Das NYX\ 
   Low key dance club with 80s to current music. 
  
-* Tanke Rike 
+* Tanke Rike\ 
   Electronic Dance club with cover
   No dress code. 
 
 See also[ Sports/Exercise](#Sports-&-Exercise)
 
-IFS Language School
+#IFS Language School
 IFS may organize the occasional day trip or activity for BuKas. 
 IFS frequently runs out of soap for the bathrooms, so bring hand sanitizer.
-Note that the IFS school was “cleansed” with fire by a student conducting a traditional  purification ritual so you may be at a different location that we were.
-Lunch Options near IFS  
+_Note that the IFS school was “cleansed” with fire by a student conducting a traditional  purification ritual so you may be at a different location that we were._
 
-Deutsche Post Tower cafeteria
+#Lunch Options near IFS  
+
+##Deutsche Post Tower cafeteria
 You’ll need to get a chip card at the automat first (costs about 5 Euros).  After purchasing the card (5 Euros is Pfand), you’ll need to put money on the card.  You go through the lines and pick out which food you want, and at the cash register, they take the money off of the card.  
-Deutsche Welle - better than the Post Tower, but more expensive (they charge a euro or two extra for non-DW employees)
-Consider packing your lunch for variety
-Ice Cream. 
+
+##Deutsche Welle - better than the Post Tower, but more expensive (they charge a euro or two extra for non-DW employees)
+Consider **packing your lunch** for variety
+
+##Ice Cream. 
 There was always an ice cream truck on the corner between IFS and the Post Tower as well.  Ice cream was about 1 Euro per scoop and perfect on hot days!
 
-Other Fun Things to Do
-Bonner Kunstverein
-Haus der Geschichte Museum
-Brot Fabrik Kino
-Opera House (with coupons!)
-Haribo factory store (!!!!!) 
-Thursday night silent film series in the University during the Summer
-Arthieum
-Botanical Gardens
+#Other Fun Things to Do
+* Bonner Kunstverein
+* Haus der Geschichte Museum
+* Brot Fabrik Kino
+* Opera House (with coupons!)
+* Haribo factory store (!!!!!) 
+* Thursday night silent film series in the University during the Summer
+* Arthieum
+* Botanical Gardens
     
-Regional Excursions 
-Bike to Hotel Dreesen Biergarten south along the Rhein
-Bike to Schambauerhof Biergarten south along the Rhein
-Hiking in Siebengebirge
-Other side of Rhein, accessible by Ferry, bike, or take the 66 train towards Bad Honnef to the Rhöndorf stop (map), Königswinter, Unkel: use your coupon for the boat ride!
+#Regional Excursions 
+* Bike to Hotel Dreesen Biergarten south along the Rhein
+* Bike to Schambauerhof Biergarten south along the Rhein
+* Hiking in Siebengebirge
+   Other side of Rhein, accessible by Ferry, bike, or take the 66 train towards Bad Honnef to the Rhöndorf stop (map), Königswinter, Unkel: use your coupon for the boat ride!
 You can hike to several different destinations (Drachenfels, Schloss Drachenburg, the Milchhaüschen, etc. or just wander through plenty of trails)
 Google maps displays most of the larger trails
 Look at all the stops on the free boat tour & check them out!
