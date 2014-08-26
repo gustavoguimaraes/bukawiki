@@ -113,60 +113,68 @@ There was always an ice cream truck on the corner between IFS and the Post Tower
 * Bike to Schambauerhof Biergarten south along the Rhein
 * Hiking in Siebengebirge
 
-   Other side of Rhein, accessible by Ferry, bike, or take the 66 train towards Bad Honnef to the Rhöndorf stop (map), Königswinter, Unkel: use your coupon for the boat ride!
-You can hike to several different destinations (Drachenfels, Schloss Drachenburg, the Milchhaüschen, etc. or just wander through plenty of trails)
-Google maps displays most of the larger trails
-Look at all the stops on the free boat tour & check them out!
-Drachenfels (hiking up is more fun!) - this is in Siebengebirge
-Hike to Milchhaüschen Restaurant near Drachenfels - this is in Siebengebirge
-Schloss Drachenburg- this is in Siebengebirge
-Brühler Schloss (has concerts too!)
-Traumpfade Hiking trails! http://www.traumpfade.info/home
-Bridge at Remagen with ruins & military museum
-Trier, Koblenz, Heidelberg, Karlsruhe, Köln
-Mosel Wine Region is really worth visiting!
+   Other side of Rhein, accessible by Ferry, bike, or take the 66 train towards Bad Honnef to the Rhöndorf stop ([map](https://goo.gl/maps/rJhIq)), Königswinter, Unkel: use your coupon for the boat ride!
+-You can hike to several different destinations (Drachenfels, Schloss Drachenburg, the [Milchhaüschen](https://goo.gl/maps/DodFg), etc. or just wander through plenty of trails)
+-Google maps displays most of the larger trails
+* Look at all the stops on the free boat tour & check them out!
+* Drachenfels (hiking up is more fun!) - this is in Siebengebirge
+* Hike to [Milchhaüschen](https://goo.gl/maps/DodFg) Restaurant near Drachenfels - this is in Siebengebirge
+* [Schloss Drachenburg](http://www.schloss-drachenburg.de/)- this is in Siebengebirge
+* Brühler Schloss (has concerts too!)
+* Traumpfade Hiking trails! http://www.traumpfade.info/home
+* Bridge at Remagen with ruins & military museum
+* Trier, Koblenz, Heidelberg, Karlsruhe, Köln
+* Mosel Wine Region is really worth visiting!
 
-Weekend Trips
+#Weekend Trips
 Weekend trips highly recommended!  Get out and explore Europe a little, and get to know different cultures while you have this time to get settled in.  The BahnCard 25 or BahnCard 50 make traveling cheaper when you used the Deutsche Bahn system to get around.  Germany (and Europe in general) are very well-connected when it comes to transportation.  Enjoy!  
-Burg Eltz (hike in Eifel Region), can be combined with a drive across the border to Maastricht
-Strasbourg
-Luxembourg
-Amsterdam
-Paris
-Stockholm
-Mosel River Valley
-Brussels
-It’s nice and close to Bonn, but remember that you will also be visiting during your Studienreise in March.  Some people still like to go and get the touristy stuff done though, as you won’t have a ton of time to do this during the Studienreise
-Buy a Bike!
-Save money on the local train! Go to places you can’t go by public transport! Have some liberty! Ride to language school next to the Rhine! Bicycles can be transported by bus at the end of the language seminar to Berlin.
-Cheap, Used, Serviced & Lots of Options
-Radladen Rückenwind
-Kaiserstraße 30, 53113 Bonn ‎ 
-Fahrrad Cycles Bonn
-Stiftsplatz 1, 53111 Bonn ‎ 
-Caritasverband für die Stadt Bonn e.V., Fahrradbude
-Mackestraße 36, 53119 Bonn ‎ 
-*Accessories can be purchased at:
-Fahrrad Cycles
-Sport Arena
-Intersport
 
-Internet & Cell Phones
+* Burg Eltz (hike in Eifel Region), can be combined with a drive across the border to Maastricht
+* Strasbourg
+* Luxembourg
+* Amsterdam
+* Paris
+* Stockholm
+* Mosel River Valley
+* Brussels
+  -It’s nice and close to Bonn, but remember that you will also be visiting during your Studienreise in March.  Some people still like to go and get the touristy stuff done though, as you won’t have a ton of time to do this during the Studienreise
+
+#Buy a Bike!
+Save money on the local train! Go to places you can’t go by public transport! Have some liberty! Ride to language school next to the Rhine! Bicycles can be transported by bus at the end of the language seminar to Berlin.
+
+##Cheap, Used, Serviced & Lots of Options
+Radladen Rückenwind
+   -Kaiserstraße 30, 53113 Bonn ‎ 
+Fahrrad Cycles Bonn
+  -Stiftsplatz 1, 53111 Bonn ‎ 
+Caritasverband für die Stadt Bonn e.V., Fahrradbude
+  -Mackestraße 36, 53119 Bonn ‎ 
+
+**Accessories can be purchased at:**
+* Fahrrad Cycles
+* Sport Arena
+* Intersport
+
+#Internet & Cell Phones
+
 The Acora offers internet during your stay in the form of daily internet vouchers.  Many of us were frustrated by the speed of the internet, as well as the limited data which the internet allows for upload/download.  As such, some of us sought out the various internet cafe options in the neighborhood and in the city.  You’ll notice that Europe does not have as much free WiFi as the US does, so be sure to plan ahead!  
-Internet Cafés
-Goldbraun an der Uni - Am Hof 26A, Bonn
-Giaccomo - Bottlerplatz 10, 53111 Bonn 
-Bagel Brothers - Maximilianstraße 14, 53111 Bonn
-Starbucks - generally offers free WiFi, 2 in city center
-Bonngout
-Italian restaurant in Bad Godesberg center near main station
-http://stadt.cityreview.de/nordrhein-westfalen/bonn/wlan-hotspots/
-Internet Speed Sticks
-If you are tired of heading towards internet cafes and sick of the slow Acora internet, you might want to consider investing in an O2 speed stick.  The stick costs approximately 30€, which includes the set-up costs.  
-Each month, to get internet which is good enough for Skyping, it costs approximately 25-35€ per month.  It is a limited internet, but it is a good supplement, especially if you are planning on traveling a lot for your project later
-Cell Phones
-Lebara offers affordable plans, English-speaking customer service, and will mail you a free SIM card if you sign up online. Plans are flexible, so consider whether you will make calls and send texts mostly to US or Germany, and how much data you want.
-BuKas used a range of carriers - consider Congstar and 02.
+
+##Internet Cafés
+* Goldbraun an der Uni - Am Hof 26A, Bonn
+* Giaccomo - Bottlerplatz 10, 53111 Bonn 
+* Bagel Brothers - Maximilianstraße 14, 53111 Bonn
+* Starbucks - generally offers free WiFi, 2 in city center
+* Bonngout
+* Italian restaurant in Bad Godesberg center near main station
+* http://stadt.cityreview.de/nordrhein-westfalen/bonn/wlan-hotspots/
+
+##Internet Speed Sticks
+* If you are tired of heading towards internet cafes and sick of the slow Acora internet, you might want to consider investing in an O2 speed stick.  The stick costs approximately 30€, which includes the set-up costs.  
+* Each month, to get internet which is good enough for Skyping, it costs approximately 25-35€ per month.  It is a limited internet, but it is a good supplement, especially if you are planning on traveling a lot for your project later
+
+##Cell Phones
+* Lebara offers affordable plans, English-speaking customer service, and will mail you a free SIM card if you sign up online. Plans are flexible, so consider whether you will make calls and send texts mostly to US or Germany, and how much data you want.
+* BuKas used a range of carriers - consider Congstar and 02.
 
 #Sports & Exercise
 ##Soccer fields & Basketball Courts 
