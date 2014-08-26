@@ -152,7 +152,7 @@ BuKas used a range of carriers - consider Congstar and 02.
 * McFit near IFS gets crowded around 8 am and around 4 to 5 pm.  
 * This gym is cheap (20 euros/month) but you need to have your bank account set up in Germany, and you need to accept a contract for 1 year.  
   
-   [Sportmeile](http://www.2f-fitness.de/) near Acora
+[Sportmeile](http://www.2f-fitness.de/) near Acora
 * On your way to the soccer fields
 * You can get a 10-time pass, so no need to sign a contract
 * Classes, ladies fitness area
