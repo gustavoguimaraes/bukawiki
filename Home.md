@@ -5,17 +5,17 @@ Created and Assembled by your friendly 2013-2014 Ameri-BuKas.
 
 Wiki produced by[ Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619). If you like it say hi to him :-)
 
-**Dear New BuKas,
+**Dear New BuKas**,
 
-Welcome to the Humboldt and BuKa family!  We hope you enjoy your time in Germany as much as we enjoyed ours.    
+**Welcome to the Humboldt and BuKa family!  We hope you enjoy your time in Germany as much as we enjoyed ours.**    
 
-The purpose of this guide is to let you know about some of the Lifehacks we used during our stay at the Hotel Acora in Bonn.  Some of us were there for up to two months of Sprachschule at IFS, while others joined us only beginning at the opening meeting in September.  We all ended up being great friends and colleagues, and we know that you will too!
+**The purpose of this guide is to let you know about some of the Lifehacks we used during our stay at the Hotel Acora in Bonn.  Some of us were there for up to two months of Sprachschule at IFS, while others joined us only beginning at the opening meeting in September.  We all ended up being great friends and colleagues, and we know that you will too!**
 
-Best of luck as you start your journey this year.  Enjoy your projects and your time with each other.  Before you know it, it’ll all be over!
+**Best of luck as you start your journey this year.  Enjoy your projects and your time with each other.  Before you know it, it’ll all be over!**
 
-Mit freundlichen Grüßen,
+**Mit freundlichen Grüßen,**
 
-Your German Chancellor Fellows and Family**
+**Your German Chancellor Fellows and Family**
 
 [[_TOC_]]
 
