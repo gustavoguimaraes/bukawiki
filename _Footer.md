@@ -1,0 +1,3 @@
+This document does not reflect the opinions or views of the Alexander von Humboldt Foundation. None of the employees of the Humboldt Foundation were involved in the preparation of this document. The Foundation does not endorse the use or propagation of this guide.
+
+Wiki produced by [Gustavo Guimarães](https://www.humboldt-life.de/profile/u4141783619)(BuKa 2014-2015). If you like it say hi to him :-)
