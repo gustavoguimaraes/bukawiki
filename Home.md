@@ -141,11 +141,11 @@ Lebara offers affordable plans, English-speaking customer service, and will mail
 BuKas used a range of carriers - consider Congstar and 02.
 
 #Sports & Exercise
-  ##Soccer fields & Basketball Courts 
+  ## Soccer fields & Basketball Courts 
     There are some very near the Acora. From the reception, take a right into the street, a left at the cul-de-sac,      under the bridge, and the soccer fields are on your right. Basketball courts just down the way on the left. Try to go during non-peak hours since some local teams practice there.
-  ##Swimming
+  ## Swimming
   Romerbad is a great outdoor swimming pool with many different pools and an artificial wave simulator that can be reached by bike or bus, and you can use a coupon from the Anmeldung!
-  ##Gyms
+  ## Gyms
    McFit near IFS 
 * 2 locations in Bonn and also throughout Germany
 * You can join and cancel if you show that you are leaving Bonn, or this gym also exists in other cities as well. Some people were able to terminate the contract with a letter from IFS indicating they were a student and that their course was completed, thus were no longer going to be in Bonn.  
@@ -156,10 +156,10 @@ BuKas used a range of carriers - consider Congstar and 02.
 * You can get a 10-time pass, so no need to sign a contract
 * Classes, ladies fitness area
 * Indoor badminton courts
-##Other
+  ## Other
 * Haribo badminton courts (paid)
 
-#Other Practical Things
+# Other Practical Things
 ##Haircuts
 * [Salvatore](http://www.salvatoreteam.de/) near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
 * There’s a pretty cheap decent place in the mall with the Hit Markt
