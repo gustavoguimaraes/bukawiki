@@ -57,11 +57,11 @@ Universität lawn, anywhere along the Rhein, including Rheinaue park
 * Hotel Dreesen (along the Rhein, infamous and pretty)
 
 ##Bars/Clubs
-* Blowup\ 
+* Blowup/ 
   60-70 R&B/Soul/Motown music
   Low key bar, mostly Locals, no cover.
 
-* N8Lounge\ 
+* N8Lounge/ 
   Dance Club - 80’s-current music.  
   Young crowd, mostly students.  Generally a cover at the door.
 
