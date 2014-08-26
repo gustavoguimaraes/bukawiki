@@ -1,8 +1,6 @@
-body {
+#wiki-content, h1,h2,h3 {
   background-color: #001c34;
   color: #24b827;
   width: 100%;
 }
-button{
-  background-color: #24b827;
-}
+
