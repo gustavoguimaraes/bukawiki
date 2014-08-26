@@ -161,14 +161,16 @@ Haribo badminton courts (paid)
 
 #Other Practical Things
 ##Haircuts
-  **Salvatore near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
-  *There’s a pretty cheap decent place in the mall with the Hit Markt
+**    Salvatore near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
+*+    There’s a pretty cheap decent place in the mall with the Hit Markt
 
 
 ##Printing documents
 *  The Hotel Acora will print train tickets & small things at the reception; you can also try the internet cafe right near the stairs at the T-Busch train stop.
+
 ##Groceries
 *  HIT (they have everything!), Aldi & DM behind Acora for food & drugstores; Large BioMarkt by Hauptbahnhof; Galeria Kaufhof for fancy import foods
+
 ##Laundry
 *  Washing your clothes at The Acora can be expensive. The front desk charges by the hour. One Buka bought an 11€ drying rack at HIT and hand-washed everything in the shower. Dry Cleaner at Tannenbusch Mitte is excellent. Friendly, quick with cleaning, and does a good job. She will also do bulk laundry. 
 
