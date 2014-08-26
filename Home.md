@@ -101,7 +101,7 @@ You’ll need to get a chip card at the automat first (costs about 5 Euros).  Af
 - better than the Post Tower, but more expensive (they charge a euro or two extra for non-DW employees)
 Consider **packing your lunch** for variety
 
-##Ice Cream. 
+##Ice Cream 
 There was always an ice cream truck on the corner between IFS and the Post Tower as well.  Ice cream was about 1 Euro per scoop and perfect on hot days!
 
 #Other Fun Things to Do
