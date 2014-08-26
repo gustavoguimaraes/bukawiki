@@ -151,11 +151,13 @@ BuKas used a range of carriers - consider Congstar and 02.
 * You can join and cancel if you show that you are leaving Bonn, or this gym also exists in other cities as well. Some people were able to terminate the contract with a letter from IFS indicating they were a student and that their course was completed, thus were no longer going to be in Bonn.  
 * McFit near IFS gets crowded around 8 am and around 4 to 5 pm.  
 * This gym is cheap (20 euros/month) but you need to have your bank account set up in Germany, and you need to accept a contract for 1 year.  
-[Sportmeile](http://www.2f-fitness.de/) near Acora
+  
+   [Sportmeile](http://www.2f-fitness.de/) near Acora
 * On your way to the soccer fields
 * You can get a 10-time pass, so no need to sign a contract
 * Classes, ladies fitness area
 * Indoor badminton courts
+
 ##Other
 * Haribo badminton courts (paid)
 
