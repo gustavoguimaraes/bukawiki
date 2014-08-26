@@ -1,9 +1,15 @@
 #wiki-content {
-  background-color: #001c34;
   color: #24b827;
 }
 
-.toc{
-  background-color: #001c34;
+.markdown-body{
+  background-color: #8198a2;
 }
 
+.markdown-body h1{
+  color: #24b827;
+}
+
+.markdown-body h2{
+  color: #24b827;
+}
