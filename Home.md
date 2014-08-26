@@ -161,8 +161,8 @@ Haribo badminton courts (paid)
 
 #Other Practical Things
 ##Haircuts
-  1. Salvatore near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
-2.   There’s a pretty cheap decent place in the mall with the Hit Markt
+  +Salvatore near Brauhaus Bönnsch (Wolf is great for women’s haircuts)
+  +There’s a pretty cheap decent place in the mall with the Hit Markt
 
 
 ##Printing documents
