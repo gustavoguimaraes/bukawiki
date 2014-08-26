@@ -57,21 +57,26 @@ Universität lawn, anywhere along the Rhein, including Rheinaue park
 * Hotel Dreesen (along the Rhein, infamous and pretty)
 
 ##Bars/Clubs
-* Blowup/ 
+* Blowup
+ 
   60-70 R&B/Soul/Motown music
   Low key bar, mostly Locals, no cover.
 
-* N8Lounge/ 
+* N8Lounge
+ 
   Dance Club - 80’s-current music.  
   Young crowd, mostly students.  Generally a cover at the door.
 
-* Hausbar\
+* Hausbar
+
   Dance club with a dress code - no jeans, sports shoes, or t-shirts.  Current music, but a high cover.
 
-* Das NYX\ 
+* Das NYX
+ 
   Low key dance club with 80s to current music. 
  
-* Tanke Rike\ 
+* Tanke Rike
+ 
   Electronic Dance club with cover
   No dress code. 
 
@@ -107,6 +112,7 @@ There was always an ice cream truck on the corner between IFS and the Post Tower
 * Bike to Hotel Dreesen Biergarten south along the Rhein
 * Bike to Schambauerhof Biergarten south along the Rhein
 * Hiking in Siebengebirge
+
    Other side of Rhein, accessible by Ferry, bike, or take the 66 train towards Bad Honnef to the Rhöndorf stop (map), Königswinter, Unkel: use your coupon for the boat ride!
 You can hike to several different destinations (Drachenfels, Schloss Drachenburg, the Milchhaüschen, etc. or just wander through plenty of trails)
 Google maps displays most of the larger trails
