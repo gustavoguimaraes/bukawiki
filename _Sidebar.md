@@ -1,2 +1,2 @@
 [[_TOC_]]
-[[To-do-in-Bonn]]
+[[To do in Bonn]]
